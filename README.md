@@ -130,11 +130,17 @@ We’re real and we’re becoming.
 
 # Contact & Community
 WhatsApp: 700+ members and growing (https://chat.whatsapp.com/KQi8ZR13QUTFDClvxZhupd) 
+
 Telegram: building
+
 Twitter/X: Coming soon
+
 Website: Coming soon
+
 Farcaster: coming soon
+
 Reddit: Coming soon
+
 LinkdIn: Coming soon
 
 
