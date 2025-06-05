@@ -38,7 +38,7 @@ Community Size
  
 	•	One-on-one and small group check-ins to keep people grounded and encouraged
  
-	•	Live Zoom sessions (in testing) to make learning more personal
+	•	Live Space sessions (in testing) to make learning more personal
 
  # What We’re Not (Yet)
 	•	Not a DAO
